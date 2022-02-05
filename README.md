@@ -1,2 +1,2 @@
-# XAMelion93.github.io
+# Владимир Капканов
 Bafu
